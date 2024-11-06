@@ -2,7 +2,7 @@
 - 👀 I’m interested in cyber security and Networking 
 - 🌱 I’m currently learning how to use Ubuntu and Linux
 - 💞️ I’m looking to collaborate on cyber security and networking projects to improve my skills and for better understanding
-- 📫 How to reach me:0826736473 or send me an email @ rosendadza@gmsil.com
+- 📫 How to reach me:0826736473 or send me an email @ rosendadza@gmail.com
 - 😄 Pronouns: Her/she
 - ⚡ Fun fact: im a very playful person but when its time to get the work done , i make it happen 
 
